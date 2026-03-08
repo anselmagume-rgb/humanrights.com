@@ -1,1 +1,1 @@
-# humanrights.com
+# trialedu.com
